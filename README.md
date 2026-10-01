@@ -36,6 +36,7 @@ keeping out an eye"
   <br>i can come off as mean or very passive aggressive, sometimes unintentional 
   <br>despite all this I AM A NICE DUDE just as anyone i have emotions that happen to affect my mood WTF! HOLY SHOCKING
   <br>im also very open about.. just about everything in my life actually LOL
+  <br>oh yeah also i have crazy paranoia at times dont whisper me if youre appearing offline in a hiding skin it makes me freak out + dont whisper me anything vague or cryptic unprovoked i WILL block you
   <br>i usually dont sound this serious and literate wtf im a funny dude guys.
 </details>
   
