@@ -30,7 +30,7 @@ keeping out an eye"
   <br>i kin steve (tankmen) and logan (codghosts) pretty hard, i personally dont mind doubles as long as its not ALL u talk abt
   <br>i do NOT fw ragebait unless we're close friends and u know my limits yo
   <br>kinda adding onto the other one, ive anger issues and it doesnt take alot to get me into a bad mood.. think emoji
-  <br>i have memory issues, im likely to forget thinks about u + things u told me and repeating stuff ive already said etc etc
+  <br>i have memory issues, im likely to forget things about u + things u told me and repeating stuff ive already said etc etc
   <br>i dont use tonetags unless i think its necessary which is not often id say 
   <br>even though i just said i dont use tonetags, i struggle to differentiate sarcasm from serious stuff so im. not very good at that itches my helmet
   <br>i can come off as mean or very passive aggressive, sometimes unintentional 
