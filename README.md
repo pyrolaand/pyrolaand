@@ -35,7 +35,7 @@ keeping out an eye"
   <br>even though i just said i dont use tonetags, i struggle to differentiate sarcasm from serious stuff so im. not very good at that itches my helmet
   <br>i can come off as mean or very passive aggressive, sometimes unintentional 
   <br>im also very open about.. just about everything in my life actually LOL
-  <br>oh yeah also i have crazy paranoia at times dont whisper me if youre appearing offline in a hiding skin it makes me freak out + dont whisper me anything vague or cryptic unprovoked i WILL block you
+  <br>oh yeah also i have crazy paranoia at times dont whisper me anything vague or cryptic unprovoked i WILL block you
   <br>i usually dont sound this serious and literate wtf im a funny dude guys.
 </details>
   
