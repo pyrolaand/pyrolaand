@@ -40,7 +40,7 @@ keeping out an eye"
 </details>
   
 <details><summary>dni</summary>
-  <br>14- years old
+  <br>-14 years old
   <br>22+ years old
   <br>proshitters and any defenders of them
   <br>tccers and people that glorify real life perpetrators
