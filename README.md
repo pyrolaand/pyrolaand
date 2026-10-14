@@ -46,8 +46,8 @@ keeping out an eye"
   <br>tccers and people that glorify real life perpetrators
   <br>transphobes, homophobes, radqueers, racists and preds + all those chuddy fellas idk all the terms
   <br>invasive people who pry
-  <br>object show fans + forsaken fans + TADC fans + literally any fan of popular roblox based media or things similar
-  <br>endogenic systems
+  <br>object show fans + forsaken fans + TADC fans + literally any fan of popular roblox based media or things similar i dont wanna be involved with your controversy
+  <br>endogenic "systems"
   <br>if all your humor revolves around sex and shock value 
 </details>
 </th></table>
