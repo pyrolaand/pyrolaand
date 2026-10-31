@@ -1,6 +1,6 @@
 <p align="center">
-"I'm all armored up
-I got my old helmet on
+"I'm all armored up,
+I got my old helmet on,
 keeping out an eye"
 </p>
 <p dir=auto>
