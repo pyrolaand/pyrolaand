@@ -40,6 +40,7 @@ keeping out an eye"
 </details>
   
 <details><summary>dni</summary>
+  <br>a handfull of these are dniuid
   <br>-14 years old
   <br>22+ years old
   <br>proshitters and any defenders of them
